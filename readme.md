@@ -1,1 +1,1 @@
-"Master shoxi" 
+"Master shoxi adaprive" 
